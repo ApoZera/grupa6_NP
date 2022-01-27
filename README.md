@@ -4,3 +4,4 @@
 
 Contributor edytował te linijkę tekstu :)
 Cześć zedytowałem tą linijkę
+APOZERO TO EDYTOWAŁ
